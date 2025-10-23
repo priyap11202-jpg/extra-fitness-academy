@@ -24,7 +24,6 @@ Our academy provides hands-on gym sessions, theory-based learning, and real clie
 ## Globally Recognized Certifications
 Extreme Fitness Academy’s programs are **REPs UAE** and **Focus Awards** approved, meaning your certification holds value across borders.
 
-> “Becoming a certified trainer isn’t just about learning exercises — it’s about understanding people.”
 
 Take the first step toward your global fitness career with our **personal trainer training in Dubai**.
 
